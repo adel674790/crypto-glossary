@@ -15,4 +15,4 @@ It's like my personal dictionary while exploring Web3.
 
 ---
 
-✨ Small steps, big progress.!1sd11455444
+✨ Small steps, big progress.!1sd1145544455
