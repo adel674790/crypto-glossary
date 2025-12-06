@@ -16,6 +16,4 @@ It's like my personal dictionary while exploring Web3.
 ---
 
 ✨ Small steps, big progress.
-11111
-2222
-3456
+111
