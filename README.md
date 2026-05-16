@@ -17,10 +17,4 @@ It's like my personal dictionary while exploring Web3.
 
 ✨ Small steps, big progress.
 dgfdgg
-jhgjg
-fsdfsdf
-hgjhgj
-khjkhjk
-gfhfgh
-hjkhkhjk
-ghjghj
+111111111111111111111111111111111111111111111111111111111111111111111111111
