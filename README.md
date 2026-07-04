@@ -16,15 +16,4 @@ It's like my personal dictionary while exploring Web3.
 ---
 
 ✨ Small steps, big progress.
-dgfdgg
-111111111111111111111111111111111111111111111111111111111111111111111111111
-kjhkjk
-jhkh
-ddfdf
-erer
-dfsdf
-dfdfdfdfdf
-dfdf
-hgjhg
-klkl
-dsds
+ddd
